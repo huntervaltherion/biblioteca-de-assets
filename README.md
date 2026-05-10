@@ -14,6 +14,7 @@ Y asi acontinuacion porfavor
 °°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°
 
 agregado modelo 3d de la gasolinera en fbx : _hunter
+
 agregado modelo 3d de la casa dummie en fbx : _hunter
 
 °°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°°
